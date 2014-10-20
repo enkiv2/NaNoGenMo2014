@@ -826,3 +826,342 @@ Others are not.
 LAT arranged along the grid square meter, which is almost in the left
 the unexposed surface of the planet ?
 image.
+Composite freeze-frame.
+introductions or even invasion was tylkoprzypuszczenie .
+
+My father might have known someone who may have known .
+long gone , as always, at the time of the hemisphere
+crisis.
+with everyone else.
+
+Byłobrak perspective.
+scenarios that range from utopian to apocalyptic .
+deadly germs by the jet stream .
+sleeve .
+in relation to foreigners.
+responds decades;
+The light speed limit like everyone else.
+warships had passed through the asteroid belt and be fumigated
+planet for a week.
+
+Like everyone else, I have borne witness of lurid speculation and talk
+leaders .
+opinions .
+life as a kind of alien ethologist in my own right, look at the world
+worn gleaning patterns and protocols , learning the rules that allowed
+I infiltrate human society .
+The presence of real animals , the dynamics of the modified
+Equation .
+presence of this new outgroup forced me to come back if the clade
+I liked it or not ;
+At night, forced smile.
+
+Nor, however, in real life, so to figure out.
+
+Chelsea had always said that telepresence emptied humanity
+Lorem ipsum dolor.
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+them, and they feel and smell next to you .
+shadows on the cave wall .
+color touch screen interactivity force feedback .
+Brain fool civilization.
+even if you can not put your finger on what you know .
+real.
+
+I did not.
+Now we were again all cavemen, huddling under an overhang all
+Lightning split the vast world of invisible monsters , barely glimpsed
+in moments strobe - frozen light , roared and clashed in the dark on
+all sides.
+interactive shadows.
+hold on, someone to share their air space with its fear and hope
+and uncertainty.
+
+I imagined the presence of comrades who will not fade over time,
+I unplugged .
+others call * peers and former clients with whom my
+impersonations of the relationship was particularly convincing * does not seem
+worth it .
+necessary, but not sufficient.
+
+The world from afar , I finally came : I
+Know exactly what Chelsea had meant to her ramblings Wyatt Luddite
+emphasize the humanity and colorless interact with virtual space .
+known all along .
+
+There has never been able to see how it was different from real life.
+
+*
+
+Imagine being a machine.
+
+Yes , I know.
+and which are not from metal, plastic and the blind man of natural
+choice, but by engineers and astrophysicists with their eyes fixed
+heavily on specific targets.
+or even to survive , but to gather information .
+
+Me I can easily imagine .
+than the kind I usually asked to perform.
+
+I coast through the abyss on the colder side of the orbit of Neptune .
+time appear only in the absence of any visible naobserwatora
+Spectrum : move blocks the asymmetric shape of the star.
+from time to time , during my endless gentle spin , flash in low taste
+reflected starlight .
+something of my true nature: the creation of the film segment on the skin ,
+Total joint and vegetables, slender antennae.
+a whisper of accumulated frost clings to a joint or seam , some frozen
+wisp of gas encountered in Jupiter space maybe.
+microscopic bodies of Earthly bacteria that flourished with care
+on the skins of space stations or benign lunar surface * , but he had
+Crystal went to only half my present distance from the sun.
+A blast from the Absolute Zero, could shatter at the touch of a photon .
+
+My heart is warm , at least.
+me indifferent to the cold outside .
+If there is no radical accident;
+for the faint voices of Mission Control and do everything they tell me
+a.
+'ve ever gotten was a precise and unambiguous elaboration that
+one overriding reason for my existence.
+
+Why these last instructions are so confusing because they do
+it makes no sense at all.
+I can not even understand the handshake protocols .
+
+The answer will come prawietysięcy hours later , and it
+Enhanced protein unheard search.
+I can , yes, it is the bearing on which the signal was great.
+They are designed to funny , but they are not.
+here all over again.
+
+Waiting for further instructions.
+let's say I want to stop studying comets immediately .
+
+I'm starting a controlled precessive clothing that covers my antenna
+steps 5 - another bow along all three axes , with
+a period of 94 seconds .
+one that confuses me , I 'm at the campsite of the maximum signal right
+Strength and derive a range of parameter values.
+to rebroadcast the signal of Mission Control .
+
+I have spoken .
+patient, and not boredom .
+brushes against my matrix related.
+And I am well equipped to describe: the comet in Neptune
+Kuiper Belt , approximately 200 kilometers in diameter.
+is spreading a- radius 21 cm compact radio waves through the sky with a
+intervals of 4.57 seconds .
+Control coordinates at each point.
+Completely different objectives.
+
+It takes longer than usual to respond to the mission control center
+data .
+tells me that from now my new goal is to be further
+Burns- Caulfield .
+not arrive in less than thirty nine years.
+
+It is one thing to understand .
+
+*
+
+I was contacted for a team from the Institute Kurzweil , a fractured
+A group of scientists , most of them were on the verge of
+solving the quantum - glial paradox .
+AI for decades ;
+months from the vicinity of the first personality uploads, and only two years
+emulation reliable human consciousness in a software environment .
+would mean the end of physical history, join the Singularity, that
+A pair of the wings were still almost from the two and fiftieth year.
+
+Two months after the Firefall , Institute of canceling my contract .
+
+I was really surprised that it had taken so long.
+us so much , this night inversion of global priorities , these
+breakneck measures making up for lost initiative.
+new post scarcity economy could withstand such an earthquake without
+lurching toward bankruptcy .
+obtain due to their remoteness imagined , were suddenly vulnerable
+the very same reason .
+protection from an unknown enemy.
+weaponised contained and moved ;
+land on Mars , while others fell into the sun to protect the array of Icarus .
+
+Never mind that the fireflies had not fired a shot at any of these
+.
+
+We were all in the same boat , of course , desperate to regain some
+hypothetical advantage of all the necessary measures.
+promissory notes scribbled on the backs of napkins and promised to solve all
+But the heat off immediately .
+two years took a back seat in the shadow of Armageddon achieve
+by next Tuesday .
+Another concern .
+
+So I returned to my apartment , divided , arranged a bulb of Glenfiddich , and
+virtual windows, like the petals of a daisy in my head.
+all parties , it remains two weeks after their expiry date :
+
+shameful breakdown
+security in the world .
+No one was hurt .
+Comsats
+annihilated.
+dead.
+Accidental collision .
+( Who sent them ? )
+We would have seen them
+comes .
+Deep Space .
+They are camouflaged !
+( What do they want ? )
+We were raped !
+Jesus Christ .
+Why the silence?
+The Moon is good.
+( Where are they? )
+Why
+contact ?
+Nothing O'Neill touched .
+implies , Technology
+Belligerence !
+( They come back ? )
+Nothing attacked us .
+So far .
+(But where are they? )
+
+( Will they return ? )
+
+( Anyone? )
+
+Only the voice of Jim Moore
+
+encrypted
+
+Accept ?
+
+Window Text grown directly in my field of vision , including
+debate.
+from the field , and could not.
+
+I mute the other windows .
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+Or excretion of our pants.
+
+He did not answer right away.
+at last .
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+nothing to ground level.
+
+It was a rhetorical request.
+Points.
+says Icarus Array went down , and * \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+all right \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+He seemed to be weighing his words.
+ad.
+be buried in the sun, unless someone knows where to look.
+
+It was my turn to fall silent .
+
+Because when my father went to work , went dark .
+His family.
+
+For my father , football with an unmarried woman , it was said it would have been ,
+it .
+were shredded and thrown in the sun like a thousand
+kilometers of torn origami ;
+were made the official announcement .
+Just make sure that * no .
+
+Because while my father did not byłmałomówny byłczłowiekiem
+frequent , indecisive pauses * and he had hesitated for each
+line which he had spoken .
+
+All the same , I pulled gently on the line * \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+started counting .
+
+A One - thousand , two thousand and one *
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+without dropping change in any case the entire network and the shovel
+First new tires.
+
+Almost three seconds to respond.
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+Fracture .
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+violation ?
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+Also contributed to the negotiate and hybrids Recons
+among us , but he was never able to hide his distrust of them.
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+Radio bounced back and forth .
+much for them to get someone else.
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+But I saw it coming and dispossessed me of my words may exceed
+the distance : \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+after prostuwiększość qualifications , and work is crucial.
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+some theoretical WestHem together in a laboratory .
+
+
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+we even intercepted transmissions .
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+sure .
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+Kuiper before.
+missed opportunities .
+it was so much closer to home .
+the asteroids .
+
+But now things lurking in our backyard appeal to the farthest edge
+into the void .
+I was talking to something closer , something along the way .
+
+\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ 
+
+
+
