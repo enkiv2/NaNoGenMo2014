@@ -1,5 +1,3 @@
-description:FirstnamesofmenandwomenpulledfromtheUSCensusforthe2000s.
-firstNames:[
 Jacob
 Michael
 Joshua
