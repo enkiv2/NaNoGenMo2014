@@ -18,6 +18,6 @@ echo "Hero: $HERO"
 echo "Hometown: $HOMETOWN"
 echo "Senex: $SENEX"
 echo "Other world: $OTHERWORLD"
-echo "Weapon: $WEAPON"
-echo "Title: $TITLE"
-echo -e "\n$NARRATIVE"
+echo "Weapon: $WEAPON"| sed 's/\( [aA]\)\( [aeiouAEIOU]\)/\1n\2/g'
+echo "Title: $TITLE"| sed 's/\( [aA]\)\( [aeiouAEIOU]\)/\1n\2/g'
+echo -e "\n$NARRATIVE" | sed 's/\( [aA]\)\( [aeiouAEIOU]\)/\1n\2/g'
