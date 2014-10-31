@@ -27,6 +27,7 @@ aweAdjective() {
 	echo -e {beautiful,enchanting,terrifying,horrible,awful,amazing,incredible,bizarre,strange,ominous,numinous,horrifying}\\n | grep . | sort -R | head -n 1
 }
 EnemyAttribute1=$(aweAdjective)
+EnemyAttribute2=$(echo -e {slimy,scaly,squamous,rugose,clammy,oozing,hairy,wrinkly,dust-dry}\\n | grep . | sort -R | head -n 1)
 SenexHome=$(location)
 SenexHomeDescription=$(echo -e "a $(aweAdjective) place, "{cut\ into\ the\ hillside,deep\ beneath\ the\ earth,hanging\ off\ a\ cliff,in\ the\ darkest\ depths\ of\ the\ forest,on\ the\ highest\ peak\ of\ the\ mountain,in\ the\ shadow\ of\ the\ mountain,nestled\ in\ the\ trunk\ of\ a\ great\ oak\ tree}", made of "{great\ blocks\ of\ granite,pure\ white\ marble,old\ driftwood,sod\ and\ straw,crumbling\ brick,ancient\ outcroppings,strange\ rock\ formations,the\ living\ bodies\ of\ plants,a\ heap\ of\ disintegrating\ animal\ hides,sticks\ and\ mud,uneven\ stone,concrete\ and\ rebar}", with $(aweAdjective) "{animals\ hanging\ from\ the\ cieling,organs\ in\ jars\ stacked\ on\ the\ shelves,potions\ sitting\ in\ the\ corner,chicken\ feet\ holding\ it\ off\ the\ ground,worm-eaten\ books\ piled\ against\ the\ walls,weapons\ above\ the\ mantle}" and a "{giant\ bonfire,great\ glowing\ orb,bubbling\ cauldron,summoning\ circle,rusty\ cage,operating\ table}\ {on,above,below,in\ the\ center\ of}\ {the\ drawing\ room,the\ library,the\ workshop,the\ yard}\\n | grep . | sort -R | head -n 1)
 
