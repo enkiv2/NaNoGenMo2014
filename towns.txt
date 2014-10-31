@@ -941,7 +941,6 @@ Redditch
 Telford
 Washington
 Welwyn Garden City
-cities: [
 Bath
 Birmingham
 Bradford
